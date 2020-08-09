@@ -1,4 +1,4 @@
-### Welcome to my GitHub Profile
+### 👋 Welcome to my GitHub Profile
 [Roblox Profile](https://www.roblox.com/users/46798282/profile)</br>
 [Silicon Digital](https://github.com/silicon-digital)
 

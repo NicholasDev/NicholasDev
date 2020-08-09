@@ -1,4 +1,6 @@
-### Hi there 👋
+### Welcome to my GitHub Profile
+[Roblox Profile](https://www.roblox.com/users/46798282/profile)</br>
+[Silicon Digital](https://github.com/silicon-digital)
 
 <!--
 **NicholasDev/NicholasDev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
